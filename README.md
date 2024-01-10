@@ -1,1 +1,3 @@
 # push
+
+God is faithful
